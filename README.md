@@ -1,2 +1,2 @@
-Wiki-for-Cobb-Fendley
+Wiki for Cobb Fendley
 =====================
